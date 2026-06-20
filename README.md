@@ -1,0 +1,1 @@
+# crafteddocsshop-privacy
